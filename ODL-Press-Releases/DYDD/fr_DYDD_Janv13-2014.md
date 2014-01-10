@@ -2,7 +2,7 @@ Ne pas publier avant le 13 janvier 2014
 
 # Donnez vos appareils poussiéreux
 
-*Offrez une nouvelle utilité à vos anciens appareils*
+*Offrez une nouvelle utilité à vos anciens appareils*.
 
 *Commencez la nouvelle année sans encombrement - et soutenez les Open Device Labs (ODLs) à travers le monde dans leur initiative "Donnez vos appareils poussiéreux" via leur site internet http://OpenDeviceLab.com/DYDD.*
 
